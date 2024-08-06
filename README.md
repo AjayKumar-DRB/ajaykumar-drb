@@ -9,7 +9,7 @@
 
 - 💬 Ask me about **Mathematics and Python**
 
-- 📫 How to reach me **ajaykumardrb@gmail.com**
+- 📫 Reach me @ **ajaykumardrb@gmail.com**
 
 - 🤔 I'm Looking for help with Placements **Product Based Companies**
 
